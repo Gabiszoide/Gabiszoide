@@ -1,4 +1,5 @@
-oii 🤍
+**Oii, bem vindo ao meu perfil✨🤍*
+**meu nome é Maria Gabrielle**
 
 <!--
 **Gabiszoide/Gabiszoide** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
